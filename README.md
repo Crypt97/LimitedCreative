@@ -3,4 +3,4 @@
 
 - Hivatalos Facebook oldalunk: facebook.com/AngelCraftHU
 - Hivatalos Facebook csoportunk: https://facebook.com/groups/125433768183133
-- Hivatalos Discord szerverünk: megszűnt!
+- Hivatalos Discord szerverünk: Már nincs Discord szerverünk mivel nem volt szükséges.
