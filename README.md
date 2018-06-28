@@ -3,4 +3,4 @@
 
 - Hivatalos Facebook oldalunk: facebook.com/AngelCraftHU
 - Hivatalos Facebook csoportunk: https://facebook.com/groups/125433768183133
-- Hivatalos Discord szerverünk: https://discord.gg/mJ43tx (Regisztráció nem szükséges!)
+- Hivatalos Discord szerverünk: megszűnt!
